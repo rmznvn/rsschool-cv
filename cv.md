@@ -1,6 +1,6 @@
 # Natalia Ramazanova
 
-##### Tech Recruiter
+##### **Tech Recruiter**
 
 ## Contacts
 ###### github https://github.com/rmznvn 
